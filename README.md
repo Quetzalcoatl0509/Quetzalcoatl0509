@@ -1,0 +1,4 @@
+- Name's Quetzalcoatl, Quetzy or Coty for short. 
+- Interests: python and c++
+- Currently learning c++ and html5
+- 📫 How to reach me ... CoatlQ@outlook.com or jampark1719@gmail.com
